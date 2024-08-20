@@ -1,0 +1,1 @@
+Hi my name is Rylen, and I just transferred from full time undergrad at ASU with hopes of transferring to a UC. I have a good amount of experience, and am also working in a research lab alongisde this working with Autonomous Vehicles. I am looking forward to a great class, and am excited to work this fall. Thank you so much for everything!
